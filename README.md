@@ -1,2 +1,3 @@
 # operacni-systemy
-bla sfsksssfddss
+nevím co psat
+
